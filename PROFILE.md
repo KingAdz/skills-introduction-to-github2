@@ -1,2 +1,2 @@
 Welcome to my Github profile
-May Name is King ADZ
+My Name is King ADZ
